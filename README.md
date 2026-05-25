@@ -2,7 +2,7 @@
 
 🎓 Bsmch Cybersecurity SecOps graduate<br/>
 🪖 SecOps Engineer at !@#$%^&*<br/>
-🧠 I love to automate tasks and vibe code
+🧠 I love automations and to vibe code
 
 
 
